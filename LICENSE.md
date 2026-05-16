@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with exclusive opensea sniper bot | trait-analysis + private-RPC-nodes. Featuring trait-analysis and private-RPC-nodes, it's the best choice
 
 
 
